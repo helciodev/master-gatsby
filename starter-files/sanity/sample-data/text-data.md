@@ -71,7 +71,7 @@ Cluck Norris
 
 Slick is the proprietor, he inherited the business from his late grandfather. Refers to himself as the Pablo Escobar of pizza. He grows his own tomatoes and won’t let anyone else near them...a little odd but we like him.
 
-Roscoe is the leftover manager. Loves Puperoni. Currently on a diet.
+Roscoe is the leftover manager. Loves Pepperoni. Currently on a diet.
 
 After spending a summer in the New Mexico desert, August became passionate about circular foods. First it was waffles, now it is pizza.
 
